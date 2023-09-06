@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Email me if you're interested 
+9135017@naver.com
 <!--
 **DragonTrainerTristana/DragonTrainerTristana** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
